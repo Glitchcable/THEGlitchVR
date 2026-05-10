@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning video editing and coding
 - 📫 How to reach me: @glitchgt_ (DISCORD)
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Used to be a minecraft animator
+- ⚡ Fun fact: Is a minecraft animator
 
 <!---
 THEGlitchVR/THEGlitchVR is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
