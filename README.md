@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @THEGlitchVR
+- 👋 Hi, I’m @Glitchcable
 - 👀 I’m interested in VR
 - 🌱 I’m currently learning video editing and coding
-- 📫 How to reach me: @glitchgt_ (DISCORD)
+- 📫 How to reach me: @glitch.mc (DISCORD)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Is a minecraft animator
 
